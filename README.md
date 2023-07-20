@@ -16,7 +16,7 @@
 
 🤝 Let's connect and learn from each other! I'm open to new opportunities and challenges.
 
-📫 Contact: aoarajitapradhann@gmail.com
+📫 Contact: aparajitapradhann@gmail.com
 
 <!---
 aparajitaa0/aparajitaa0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
